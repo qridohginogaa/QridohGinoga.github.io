@@ -1,0 +1,2 @@
+# QridohGinoga.github.io
+no
